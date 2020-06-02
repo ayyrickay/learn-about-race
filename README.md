@@ -8,6 +8,9 @@ A lot of people want to educate themselves on the subject of race and racism, bu
 
 [White Fragility](https://www.amazon.com/dp/B07K356517) -  Robin DiAngelo
 
+[Know your history: Understanding racism in the US](https://www.aljazeera.com/indepth/features/2015/08/race-history-ferguson-150814082921736.html) - A'Lelia Bundles (for Al Jazeera)
+
+
 ## Music
 Janelle Monae - [Queen](https://www.youtube.com/watch?v=tEddixS-UoU)
 
@@ -26,6 +29,16 @@ Beyonce - [Lemonade Trailer](https://www.youtube.com/watch?time_continue=2&v=BB5
 
 ## Movies
 [Get Out](https://en.wikipedia.org/wiki/Get_Out)
+
+[12 Years a Slave](https://en.wikipedia.org/wiki/12_Years_a_Slave_(film))
+
+[Fruitvale Station](https://en.wikipedia.org/wiki/Fruitvale_Station)
+
+[Dear White People](https://en.wikipedia.org/wiki/Dear_White_People)
+
+[Birth of a Nation (1915)](https://en.wikipedia.org/wiki/The_Birth_of_a_Nation) - to understand the other side’s arguments
+
+[Mississippi Masala”](https://en.wikipedia.org/wiki/Mississippi_Masala) - explores racism through an Ugandan-Indian / immigrant lens. 
 
 ## Television
 [Black-ish](https://en.wikipedia.org/wiki/Black-ish)
