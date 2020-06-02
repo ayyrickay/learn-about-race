@@ -12,6 +12,8 @@ A lot of people want to educate themselves on the subject of race and racism, bu
 
 [Anti-Racism Resources](https://docs.google.com/document/d/1BRlF2_zhNe86SGgHa6-VlBO-QgirITwCTugSfKie5Fs/preview?fbclid=IwAR0X36q6QE1F1zkwOV3il0nCv2ygn2hh6LZGtlAa8CAAyZxqBubk6GuLXEM&pru=AAABcoFTKTY*-iVyQIoFqUCDTVBTUB60Zg) - Google Doc resource compilation
 
+[Racial Equity Resources](https://airtable.com/shr4E7n2GLi9qYp3I/tbl2cvGXcgx6LXtAP) - Airtable Resource Compilation
+
 
 ## Music
 Janelle Monae - [Queen](https://www.youtube.com/watch?v=tEddixS-UoU)
