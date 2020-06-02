@@ -10,6 +10,8 @@ A lot of people want to educate themselves on the subject of race and racism, bu
 
 [Know your history: Understanding racism in the US](https://www.aljazeera.com/indepth/features/2015/08/race-history-ferguson-150814082921736.html) - A'Lelia Bundles (for Al Jazeera)
 
+[Anti-Racism Resources](https://docs.google.com/document/d/1BRlF2_zhNe86SGgHa6-VlBO-QgirITwCTugSfKie5Fs/preview?fbclid=IwAR0X36q6QE1F1zkwOV3il0nCv2ygn2hh6LZGtlAa8CAAyZxqBubk6GuLXEM&pru=AAABcoFTKTY*-iVyQIoFqUCDTVBTUB60Zg) - Google Doc resource compilation
+
 
 ## Music
 Janelle Monae - [Queen](https://www.youtube.com/watch?v=tEddixS-UoU)
