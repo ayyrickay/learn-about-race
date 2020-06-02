@@ -29,5 +29,7 @@ Beyonce - [Lemonade Trailer](https://www.youtube.com/watch?time_continue=2&v=BB5
 
 ## Television
 [Black-ish](https://en.wikipedia.org/wiki/Black-ish)
+
 [BlackAF](https://www.netflix.com/title/81056700)
+
 [Insecure](https://en.wikipedia.org/wiki/Insecure_(TV_series))
