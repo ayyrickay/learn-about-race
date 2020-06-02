@@ -1,6 +1,14 @@
 # learn-about-race
 A lot of people want to educate themselves on the subject of race and racism, but aren't sure where to start. For those of us who know a little (or a lot) there are always more stories to learn and understand. This is a github repository of media resources to help people start and continue their journey to learn about race and racism.
 
+## Resource Lists
+[George Floyd Resource List](https://docs.google.com/document/d/1CjZMORRVuv-I-qo4B0YfmOTqIOa3GUS207t5iuLZmyA/mobilebasic)
+
+[Anti-Racism Resources](https://docs.google.com/document/d/1BRlF2_zhNe86SGgHa6-VlBO-QgirITwCTugSfKie5Fs/preview?fbclid=IwAR0X36q6QE1F1zkwOV3il0nCv2ygn2hh6LZGtlAa8CAAyZxqBubk6GuLXEM&pru=AAABcoFTKTY*-iVyQIoFqUCDTVBTUB60Zg) - Google Doc resource compilation
+
+[Racial Equity Resources](https://airtable.com/shr4E7n2GLi9qYp3I/tbl2cvGXcgx6LXtAP) - Airtable Resource Compilation
+
+
 ## Readings
 [The Invisible Knapsack](https://www.racialequitytools.org/resourcefiles/mcintosh.pdf) - Peggy McIntosh
 
@@ -9,10 +17,6 @@ A lot of people want to educate themselves on the subject of race and racism, bu
 [White Fragility](https://www.amazon.com/dp/B07K356517) -  Robin DiAngelo
 
 [Know your history: Understanding racism in the US](https://www.aljazeera.com/indepth/features/2015/08/race-history-ferguson-150814082921736.html) - A'Lelia Bundles (for Al Jazeera)
-
-[Anti-Racism Resources](https://docs.google.com/document/d/1BRlF2_zhNe86SGgHa6-VlBO-QgirITwCTugSfKie5Fs/preview?fbclid=IwAR0X36q6QE1F1zkwOV3il0nCv2ygn2hh6LZGtlAa8CAAyZxqBubk6GuLXEM&pru=AAABcoFTKTY*-iVyQIoFqUCDTVBTUB60Zg) - Google Doc resource compilation
-
-[Racial Equity Resources](https://airtable.com/shr4E7n2GLi9qYp3I/tbl2cvGXcgx6LXtAP) - Airtable Resource Compilation
 
 
 ## Music
