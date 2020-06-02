@@ -3,18 +3,25 @@ A lot of people want to educate themselves on the subject of race and racism, bu
 
 ## Readings
 [The Invisible Knapsack](https://www.racialequitytools.org/resourcefiles/mcintosh.pdf) - Peggy McIntosh
+
 [A Question of Language](https://www.csun.edu/~hcpas003/language.html) - Gloria Naylor
+
 [White Fragility](https://www.amazon.com/dp/B07K356517) -  Robin DiAngelo
 
 ## Music
 Janelle Monae - [Queen](https://www.youtube.com/watch?v=tEddixS-UoU)
+
 Le1f - [Wut](https://www.youtube.com/watch?v=Nrnq4SZ0luc)
+
 Beyonce - [Lemonade Trailer](https://www.youtube.com/watch?time_continue=2&v=BB5zLq1zcdo&feature=emb_title)
 
 ## Podcasts
 [Hear to Slay](https://www.heartoslay.com/)
+
 [Code Switch](https://www.npr.org/podcasts/510312/codeswitch)
+
 [Still Processing](https://www.nytimes.com/column/still-processing-podcast)
+
 [Straight White American Jesus](https://www.religiousstudiesproject.com/podcast/straight-white-american-jesus-the-podcast/)
 
 ## Movies
