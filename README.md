@@ -18,9 +18,19 @@ A lot of people want to educate themselves on the subject of race and racism, bu
 
 [Know your history: Understanding racism in the US](https://www.aljazeera.com/indepth/features/2015/08/race-history-ferguson-150814082921736.html) - A'Lelia Bundles (for Al Jazeera)
 
+[The Bluest Eye](https://www.amazon.com/Bluest-Eye-Vintage-International/dp/0307278441) - Toni Morrison
+
+[Thick](https://www.amazon.com/Thick-Essays-Tressie-McMillan-Cottom/dp/1620974363) - Tressie McMillan Cottom
+
+[Invisible Man](https://www.amazon.com/Invisible-Man-Ralph-Ellison/dp/0679732764) - Ralph Ellison
+
+[The Cross and the Lynching Tree](https://www.amazon.com/Cross-Lynching-Tree-James-Cone/dp/1626980055) - James H. Cone
+
+[I'm Still Here: Black Dignity in a World Made for Whiteness](https://www.amazon.com/Im-Still-Here-Dignity-Whiteness/dp/1524760854) - Austin Channing Brown
+
 
 ## Music
-Janelle Monae - [Queen](https://www.youtube.com/watch?v=tEddixS-UoU)
+Janelle Monae - [Q.U.E.E.N.](https://www.youtube.com/watch?v=tEddixS-UoU)
 
 Le1f - [Wut](https://www.youtube.com/watch?v=Nrnq4SZ0luc)
 
@@ -34,6 +44,8 @@ Beyonce - [Lemonade Trailer](https://www.youtube.com/watch?time_continue=2&v=BB5
 [Still Processing](https://www.nytimes.com/column/still-processing-podcast)
 
 [Straight White American Jesus](https://www.religiousstudiesproject.com/podcast/straight-white-american-jesus-the-podcast/)
+
+[Dissect Season 6 - Lemonade](http://dissectpodcast.com/)
 
 ## Movies
 [Get Out](https://en.wikipedia.org/wiki/Get_Out)
