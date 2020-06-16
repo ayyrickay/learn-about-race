@@ -46,7 +46,7 @@ Beyonce - [Lemonade Trailer](https://www.youtube.com/watch?time_continue=2&v=BB5
 
 [Birth of a Nation (1915)](https://en.wikipedia.org/wiki/The_Birth_of_a_Nation) - to understand the other side’s arguments
 
-[Mississippi Masala”](https://en.wikipedia.org/wiki/Mississippi_Masala) - explores racism through an Ugandan-Indian / immigrant lens. 
+[Mississippi Masala](https://en.wikipedia.org/wiki/Mississippi_Masala) - explores racism through an Ugandan-Indian / immigrant lens. 
 
 ## Television
 [Black-ish](https://en.wikipedia.org/wiki/Black-ish)
